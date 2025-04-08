@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @IamRougamoRIKA
 - 👀 I’m interested in Programming,Mathmatics,Physics,Automatics
 - I'm Nobody,just Rougamo,A suffermore(sophomore in a typo style) in Git.
-
-
 <details>
 <summary>Self introduction</summary>
 
