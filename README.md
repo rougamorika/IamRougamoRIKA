@@ -15,6 +15,11 @@ You can call me Rougamo. A Famous XI'AN Snack but not from Xi'AN
 - Be a Multilinguist (Good-Command of EN,Can Speak Japanese and German,A freshman in French & Chinese,Have interest in Spanish and Arabic)
 - Going after the girl i love so much
 
+### Specialty/Interest
+
+-  Bass(A Instrument that can't be heard LOL) Player
+-  DiscO Lover
+-  Rock Mania
 ### Blog
 
 - [EEsite by Rougamo](https://rougamorika.github.io/)
